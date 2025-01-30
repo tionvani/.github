@@ -1,4 +1,4 @@
-## [V𝙸D𝙴A] Hogyan tudnék élni nélküled (2025)
+## [V𝙸D𝙴A] Hogyan tudnék élni nélküled (2025) T𝚎lj𝚎s F𝚒lm M𝚊gy𝚊rul O𝚗l𝚒n𝚎 𝟷𝟶𝟾𝟶𝚙
 
 # .github
 
